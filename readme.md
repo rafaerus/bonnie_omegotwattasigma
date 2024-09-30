@@ -1,0 +1,1 @@
+eula lawrence is a character from genshin impact
